@@ -6,9 +6,9 @@
 
 [hikinikuman18\]VoreTuber - 1
 
-### 计划目录
-
 [hikinikuman18\]VoreTuber - 2
+
+### 计划目录
 
 [hikinikuman18\]VoreTuber - 3
 
