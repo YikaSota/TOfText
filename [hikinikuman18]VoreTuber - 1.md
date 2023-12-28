@@ -1,4 +1,4 @@
-##  [hikinikuman18] VoreTuber - 1｜吧唧吧唧丸吞回 [中国翻译] [糖果个人汉化]
+##  [hikinikuman18] VoreTuber - 1｜吧唧丸吞回 [中国翻译] [糖果个人汉化]
 
 ### P1
 
