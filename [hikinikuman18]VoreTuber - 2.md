@@ -1,4 +1,4 @@
-##  [hikinikuman18] VoreTuber - 2｜咕噜消化回 [中国翻译] [糖果个人汉化]
+##  [hikinikuman18] VoreTuber - 2｜吧唧丸吞回 [中國翻譯] [糖果個人漢化]
 
 ### P1
 
