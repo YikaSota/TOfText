@@ -1,4 +1,4 @@
-## Trusting Taisiya丨塔希娅的诱惑 - Sovinski
+## [Sovinski] Trusting Taisiya丨塔希娅的诱惑
 
 ### P1
 
@@ -116,3 +116,8 @@ I CAN ALREADY SEE IT! I'LL LURE THEM IN BY GIVING THEM HOPE OF YOUR WHEREABOUTS,
 BUT FIRST, I GOTTA GET RID OF THIS LOVELY POTBELLY, CAN'T AROUND GIVING MY FUTURE MEALS ANY HINTS AS TO WHAT'S COMING~
 
 不过现在嘛…我得赶快把你吸收掉咯，不能让下一个可爱的小零食发现我的秘密呢~
+
+---
+
+总计：￥22.8
+
