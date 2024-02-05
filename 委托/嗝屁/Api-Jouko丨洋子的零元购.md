@@ -1,0 +1,79 @@
+## Api-Jouko丨洋子的零元购
+
+YOU'RE MOCKING KATYUSHA!
+
+你在逗我？！
+
+AS IF YOUR SCHOOL COULD EVER AFFORD TO BUY TANKS FROM US!
+
+就凭你们这态度，还想买我们的坦克？笑死！
+
+I'LL HAVE YOU DIGESTED FOR THIS!
+
+你要为你的态度付出代价！我要狠狠消化掉你！
+
+BUUUUUT, YOU MAY DECIDE WHOSE BELLY YOU WILL FILL, DRAVDA IS WELCOMING LIKE THAT.
+
+但是！我们可以给你这不知天高地厚的小可怜虫一个选择的机会
+
+DON'T WORRY, EITHER CAN SWALLOW YOU UP AS IF YOU WERE KARELIA, HA!
+
+放心，我们谁都能吃掉你，就像吃馅饼一样简简单单！哈！哈！哈！
+
+TAKE THE TANKS!
+
+坦克给你们了！
+
+YOU CAN KEED MY FRIENDS TOO!
+
+我的队员们也给你们好了！
+
+YOU CRUEL, BLOODTHIRSTY BEASTS.
+-不翻译-
+
+JUST LEAVE POOR KAТУUSHA UNEATEN, WААААААH!
+
+求你们不要吃我！哇啊啊啊！
+
+MIΚA: AHAHA...
+
+米卡：啊呼啊呼…
+
+LOOKS LIKE PRAVDALEARNED NOT TO MAKE AN ENEMY OF A WITCH.
+
+看起来你们现在知道与我们为敌的下场了
+
+YOUR TANKS ARE WELCOME, BUT I THINK YOUR FRIENDS CAN LEAVE WITH YOU.
+
+你们的坦克我们就拿走了。然后你现在能带着那个还没被消化掉的队员回去了
+
+AT LEAST THE ONE IN HER STOMACH, THE OTHER...
+
+至于另一个的话…
+
+WELL, YOU'D HAVE TO WAIT A WHILE BEFORE YOU CAN PICK HER UP IF YOU'D LIKE.
+
+嗯，她出来还需要点时间，你也可以等她出来后再带她一起走
+
+DID YOU HEAR THAT, JOUKO?
+
+洋子？你在听嘛？
+
+LET THE TALL BRUNETTE OUT, I THINK THE OTHER WILL BE PADDING ENOUGH ON YOUR BUTT!
+
+先把那个高个子的女孩吐出来吧，只吸收另一个的养分也足够你的身材成长很多了！
+
+### 名词解释
+
+KARELIA：卡累利阿，芬兰的一种馅饼
+
+DRAVDA：作者打错字了，实为PRAVDA，真理高校
+
+### 人名注释
+
+KATYUSHA：喀秋莎
+
+MIKA：米卡
+
+JOUKO：洋子
+

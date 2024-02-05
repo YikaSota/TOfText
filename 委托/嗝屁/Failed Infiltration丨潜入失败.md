@@ -56,3 +56,7 @@ ERKIA：逸见艾丽卡 - Erika
 
 MAHO：西住真穗 - Nishizumi Maho
 
+---
+
+总计：￥5
+
