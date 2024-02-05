@@ -18,7 +18,7 @@ AH...
 
 THERE WE GO, FINALLY ALL NICE AND MUSHY.
 
-感觉好像，把提督大人消化得差不多了
+感觉好像，提督大人被消化得差不多了
 
 DON'T WORRY ADMIRAL, YOU'LL BE WITH ME FOREVER
 
@@ -26,7 +26,7 @@ DON'T WORRY ADMIRAL, YOU'LL BE WITH ME FOREVER
 
 I'D LOVE TO GO FOR SOME BLACK TEA RIGHT ABOUT NOW TO GO ALONG WITH YOU~
 
-现在去喝点红茶吧，正好给提督大人泡一泡茶浴
+现在回去泡点红茶喝吧，正好给提督大人泡一泡茶浴
 
 ---
 
