@@ -212,10 +212,6 @@ GO ON THEN.O-OF COURSE! THANK YOU SIR...
 
 (我在努力！)
 
-
-
-### P4
-
 ### P5
 
 THE PAST FEW YEARS…
