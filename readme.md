@@ -4,8 +4,6 @@
 
 ### 当前进度
 
-Leaving No Trace
-
 ### 已存档
 
 [Lampton\]午夜恐怖剧场
@@ -17,4 +15,8 @@ Leaving No Trace
 [hikinikuman18\]VoreTuber - 3
 
 [amido56625] 吊り橋キューピット
+
+
+
+6.3+5.7+1.5+1.5+6.5+5.3+2.8+1.5=31.1
 
