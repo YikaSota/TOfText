@@ -42,21 +42,5 @@ P
 no is no, erika
 不行艾丽卡，说了不行
 
----
-
-### 故事背景
-
-少女与战车
-
-#### 人名注释
-
-YUKARI：秋山优花里 - Akiyama Yukari
-
-ERKIA：逸见艾丽卡 - Erika
-
-MAHO：西住真穗 - Nishizumi Maho
-
----
-
 总计：￥5
 

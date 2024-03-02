@@ -73,7 +73,5 @@ DRAVDA：作者打错字了，实为PRAVDA，真理高校
 
 KATYUSHA：喀秋莎
 
-MIKA：米卡
 
-JOUKO：洋子
 

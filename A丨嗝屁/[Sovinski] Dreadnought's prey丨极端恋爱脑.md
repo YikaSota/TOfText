@@ -28,13 +28,5 @@ I'D LOVE TO GO FOR SOME BLACK TEA RIGHT ABOUT NOW TO GO ALONG WITH YOU~
 
 现在回去泡点红茶喝吧，正好给提督大人泡一泡茶浴
 
----
-
-### 故事背景
-
-舰队Collection
-
----
-
 合计：￥4.1
 

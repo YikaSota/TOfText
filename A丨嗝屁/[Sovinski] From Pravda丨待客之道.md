@@ -30,16 +30,6 @@ O! Klara! Why're you stopping?
 
 哎！库拉拉！你在发什么呆呢？
 
----
-
-### 人名注释
-
-KATYUSHA：喀秋莎
-
-Klara：库拉拉
-
-Rosehip：蔷薇果
-
 ### 结算
 
 ￥4.6
